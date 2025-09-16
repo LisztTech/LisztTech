@@ -1,4 +1,4 @@
-## Hi there 👋
+## More focus more patient! 
 
 <!--
 **LisztTech/LisztTech** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
